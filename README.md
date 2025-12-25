@@ -1,0 +1,81 @@
+# STAYC – SO BAD
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+STAYC
+STAYC girls, it’s going down
+You stole my heart
+내 맘을 뺏지
+I need your love
+사랑의 patch 가
+필요해 니 옆에
+불러줘 and I’ll never go away
+마음속에 모든 걸
+다 보여주면 서툴러
+철이 없다 해도 괜찮아
+난 그게 좋아
+Baby 아무리 밀어내도
+변하지가 않는 걸
+너를 좋아하는 건 분명
+어쩔 수 없는 걸
+정말야 I want you SO BAD
+난 니가 필요해 yeah
+내 내 내 내 내 머리 머리
+내 머릿속이 너로 가득해 baby
+첨부터 I want you SO BAD
+멈출 수 없어 절대
+내 내 내 내 내 맘이 맘이
+내 맘이 아파 너땜에
+Never, never,
+never, never, never
+숨기지 못해
+난 nah-nah-nah-nah-nah-nah-nah
+달라져 또 밀고 당기는거
+한다고 더 내 맘 잘 알아줘
+How do you think,
+how do you think? Yeah yeah
+STAYC girls, it’s going down
+눈으로만 모든 걸
+다 알 수 없어 섣불러
+잘못 봤다 해도 괜찮아
+난 니가 좋아
+Baby 아무리 밀어내도
+변하지가 않는 걸
+너를 좋아하는 건 분명
+어쩔 수 없는 걸
+정말야 I want you SO BAD
+난 니가 필요해 yeah
+내 내 내 내 내 머리 머리
+내 머릿속이 너로 가득해 baby
+첨부터 I want you SO BAD
+멈출 수 없어 절대
+내 내 내 내 내 맘이 맘이
+내 맘이 아파 너땜에
+솔직히 난 사랑을 잘 몰라
+그래서 겁이 나
+그래도 난 좋아 yeah yeah
+서투른 내 맘을 알아줘 baby
+모른 척 떠나지 말아줘
+You’ve got a feeling
+You know you’ve got
+that feeling
+I want you SO BAD
+You stole my heart 맘을 뺏겼지
+I need your love 니 맘도 같길
+I want you bad yeah so bad
+불러줘 and I’ll never go away
+정말야 I want you SO BAD
+정말야 I want you SO BAD
+난 니가 필요해 yeah
+내 내 내 내 내 머리 머리
+내 머릿속이 너로 가득해 baby
+첨부터 I want you SO BAD
+멈출 수 없어 절대
+내 내 내 내 내 맘이 맘이
+내 맘이 아파 너땜에
+Never, never,
+never, never, never
+숨기지 못해
+난 nah-nah-nah-nah-nah-nah-nah
+```
